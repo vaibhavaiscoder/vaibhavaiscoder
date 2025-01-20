@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **vaibhavghugase00@gmail.com**
 
-- 📄 Know about my experiences [https://vaibhavahai.web.app/#/](https://vaibhavahai.web.app/#/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/vaibhav-ghugase/](https://www.linkedin.com/in/vaibhav-ghugase/)
 
 
 <h3 align="left">Languages and Tools:</h3>
