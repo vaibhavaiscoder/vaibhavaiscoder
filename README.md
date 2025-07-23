@@ -13,7 +13,7 @@
 
 - 📫 How to reach me: **vaibhavghugase00@gmail.com**
 
-- 📄 Check out my resume: [Click here to view](https://drive.google.com/file/d/1jxBhg0nfrmzr3njQhiQTadFEjRu39GFe/view?usp=sharing)
+- 📄 Check out my resume: [Click here to view]([https://drive.google.com/file/d/1jxBhg0nfrmzr3njQhiQTadFEjRu39GFe/view?usp=sharing](https://drive.google.com/file/d/1fGsJ8BYg2efKUdYwhjnvxSNF6q4vI1hq/view?usp=sharing)
 
 ---
 
